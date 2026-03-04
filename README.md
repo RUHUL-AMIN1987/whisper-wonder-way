@@ -145,4 +145,4 @@ Step flow illustrated with friendly icons/illustrations:
 
 ## Contact
 
-* For further updates or assets, contact: [Your contact email].
+* For further updates or assets, contact: ruhulamin3052@gmail.com.
